@@ -1,0 +1,1 @@
+Olá, isso é apenas uma simulação ;D
